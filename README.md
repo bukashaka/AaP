@@ -1,1 +1,1 @@
-Смышляев Никита Николаевич ПМИ - 9, 13 Вариант
+Smyshlaev Nikita Nikolaevich PMI - 9, 13 Variant
